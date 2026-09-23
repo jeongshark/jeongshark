@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @jeongshark
 - 👀 I’m interested 追星
 - 🌱 I’m currently learning english.
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 113b05996@mailst.cjcu.edu.tw
 - 🪪Abacus訂位證照
 - ✈️曾台南航空站實習
